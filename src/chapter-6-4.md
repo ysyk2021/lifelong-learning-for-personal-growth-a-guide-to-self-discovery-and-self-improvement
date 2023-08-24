@@ -1,5 +1,3 @@
-Building Mindfulness and Awareness through Daily Practices
-============================================================================================================================
 
 Cultivating positive habits and mindfulness practices are essential for personal growth and self-improvement. In this chapter, we explore the importance of building mindfulness and awareness through daily practices.
 

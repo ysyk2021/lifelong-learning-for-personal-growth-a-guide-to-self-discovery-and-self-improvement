@@ -1,5 +1,3 @@
-The Role of Habits and Mindfulness in Personal Growth
-=======================================================================================================================
 
 Cultivating positive habits and mindfulness practices can play an essential role in personal growth and self-improvement. In this chapter, we explore how developing positive habits and mindfulness practices can support personal growth.
 

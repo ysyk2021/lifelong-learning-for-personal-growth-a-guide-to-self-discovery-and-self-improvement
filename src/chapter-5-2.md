@@ -1,5 +1,3 @@
-Coping with Fear and Discomfort
-==========================================================================================
 
 Fear and discomfort can hold individuals back from taking risks and pursuing personal growth. In this chapter, we discuss strategies for coping with fear and discomfort in order to stay on track towards personal growth and self-improvement.
 

@@ -1,5 +1,3 @@
-Techniques for Developing a Growth Mindset
-==================================================================================
 
 Developing a growth mindset involves embracing challenges, persisting through obstacles, learning from criticism, and finding inspiration in the success of others. In this chapter, we explore practical techniques for developing a growth mindset.
 

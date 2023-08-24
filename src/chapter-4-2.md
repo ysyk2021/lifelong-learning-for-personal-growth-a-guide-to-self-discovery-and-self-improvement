@@ -1,5 +1,3 @@
-Techniques for Setting SMART Goals
-======================================================================================
 
 Setting goals and creating action plans are essential for personal growth and self-improvement. In this chapter, we explore techniques for setting SMART goals.
 

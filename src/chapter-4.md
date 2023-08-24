@@ -1,5 +1,3 @@
-Chapter 3: Setting Goals and Creating Action Plans
-==================================================
 
 Setting goals and creating action plans are essential for personal growth and self-improvement. In this chapter, we explore the importance of goal-setting, techniques for setting SMART goals, developing action plans to achieve your goals, and celebrating progress and success along the way.
 

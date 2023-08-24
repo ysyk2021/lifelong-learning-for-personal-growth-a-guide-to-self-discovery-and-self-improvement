@@ -1,5 +1,3 @@
-Developing a Personalized Plan for Self-Discovery and Self-Improvement
-=========================================================================================================================
 
 Now that we have explored the principles of lifelong learning, self-discovery, self-improvement, and overcoming obstacles, it's time to develop a personalized plan for applying these principles to your life.
 

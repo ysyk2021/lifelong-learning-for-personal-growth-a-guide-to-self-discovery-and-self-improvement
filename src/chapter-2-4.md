@@ -1,5 +1,3 @@
-Building Self-Awareness as a Learner
-============================================================================
 
 Developing a growth mindset is essential for personal growth and self-improvement. In this chapter, we explore the importance of building self-awareness as a learner and developing a growth mindset.
 

@@ -1,5 +1,3 @@
-Celebrating Progress and Success Along the Way
-==================================================================================================
 
 Setting goals and creating action plans are essential steps towards achieving personal growth and self-improvement. In this chapter, we explore the importance of celebrating progress and success along the way.
 

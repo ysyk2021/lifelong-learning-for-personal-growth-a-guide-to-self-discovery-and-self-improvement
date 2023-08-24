@@ -1,5 +1,3 @@
-Chapter 1: Developing a Growth Mindset
-======================================
 
 Developing a growth mindset is essential for personal growth and self-improvement. In this chapter, we explore the power of mindset in personal growth, techniques for developing a growth mindset, overcoming limiting beliefs and negative self-talk, and building self-awareness as a learner.
 

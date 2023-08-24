@@ -1,5 +1,3 @@
-Overcoming Fear and Self-Doubt in Pursuing New Interests
-==========================================================================================================
 
 Exploring passions and interests is a crucial component of personal growth and self-discovery. In this chapter, we explore how to overcome fear and self-doubt when pursuing new interests.
 

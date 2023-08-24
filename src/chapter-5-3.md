@@ -1,5 +1,3 @@
-Managing Setbacks and Failures
-=========================================================================================
 
 Setbacks and failures are inevitable parts of the personal growth process. In this chapter, we discuss strategies for managing setbacks and failures in order to stay on track towards personal growth and self-improvement.
 

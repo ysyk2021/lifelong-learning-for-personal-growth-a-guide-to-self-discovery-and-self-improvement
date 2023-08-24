@@ -1,5 +1,3 @@
-Chapter 5: Cultivating Positive Habits and Mindfulness Practices
-================================================================
 
 Cultivating positive habits and mindfulness practices can play an essential role in personal growth and self-improvement. In this chapter, we explore the role of habits and mindfulness in personal growth, techniques for developing positive habits and mindfulness practices, addressing common challenges in habit formation, and building mindfulness through daily practices.
 

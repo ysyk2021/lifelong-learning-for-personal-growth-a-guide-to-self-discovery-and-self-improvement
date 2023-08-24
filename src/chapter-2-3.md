@@ -1,5 +1,3 @@
-Overcoming Limiting Beliefs and Negative Self-Talk
-==========================================================================================
 
 Developing a growth mindset is essential for personal growth and self-improvement. In this chapter, we explore how to overcome limiting beliefs and negative self-talk in order to develop a growth mindset.
 

@@ -1,5 +1,3 @@
-Techniques for Cultivating Positive Habits and Practices
-==========================================================================================================================
 
 Cultivating positive habits and mindfulness practices can play an essential role in personal growth and self-improvement. In this chapter, we explore specific techniques for developing positive habits and mindfulness practices.
 
