@@ -36,3 +36,4 @@
   - [Maintaining a growth mindset and continuing to learn for personal growth](chapter-7-4.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

@@ -12,3 +12,7 @@ In the following chapters, we'll explore the importance of lifelong learning and
 We hope that this book will inspire and motivate you to embark on a lifelong learning journey and help you achieve the personal and professional success you deserve.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
