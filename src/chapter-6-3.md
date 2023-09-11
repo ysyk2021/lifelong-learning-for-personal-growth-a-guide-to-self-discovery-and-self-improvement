@@ -1,5 +1,4 @@
-Chapter 6: Addressing Common Challenges in Habit Formation
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common challenges that individuals face when trying to form new habits and provide strategies for overcoming them. Understanding and addressing these challenges can help you cultivate successful and lasting habits that support your lifelong learning, self-discovery, and self-improvement journey.
 

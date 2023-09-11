@@ -1,5 +1,4 @@
-Chapter 8: Incorporating New Learnings into Daily Life
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively incorporating new learnings into your daily life. Learning is only valuable when it is applied and integrated into practical situations. By implementing these techniques, you can ensure that your newfound knowledge translates into meaningful actions and lasting personal growth.
 

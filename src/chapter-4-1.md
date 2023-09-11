@@ -1,5 +1,4 @@
-Chapter 3: The Importance of Goal-Setting in Personal Growth
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of goal-setting in personal growth and how it serves as a powerful framework for self-discovery and self-improvement. Setting meaningful and well-defined goals is a fundamental step towards realizing your aspirations and unlocking your full potential.
 

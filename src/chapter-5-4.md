@@ -1,5 +1,4 @@
-Chapter 12: Building Resilience and Adaptability
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of building resilience and adaptability for personal growth. Discover strategies and techniques to navigate through challenges, bounce back from setbacks, and embrace change with resilience and adaptability.
 

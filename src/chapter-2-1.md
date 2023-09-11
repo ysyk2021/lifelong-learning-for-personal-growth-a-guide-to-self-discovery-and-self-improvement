@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Power of Mindset in Personal Growth
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact of mindset on personal growth and self-improvement. By understanding and cultivating a growth mindset, we can enhance our ability to learn, overcome challenges, and unlock our full potential for lifelong learning and development.
 

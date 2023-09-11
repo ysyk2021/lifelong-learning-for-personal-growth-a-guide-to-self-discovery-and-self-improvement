@@ -1,5 +1,4 @@
-Chapter 7: The Role of Passions and Interests in Personal Growth
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant role that passions and interests play in personal growth. Understanding how our passions and interests contribute to self-discovery and self-improvement can empower us to lead more fulfilling and purposeful lives.
 

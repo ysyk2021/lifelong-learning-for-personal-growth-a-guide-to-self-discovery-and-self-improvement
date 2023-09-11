@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Cultivating Positive Habits and Practices
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques and strategies to cultivate positive habits and practices that support lifelong learning, self-discovery, and self-improvement. By incorporating these techniques into your daily routine, you can create a strong foundation for personal growth and harness the power of lifelong learning.
 

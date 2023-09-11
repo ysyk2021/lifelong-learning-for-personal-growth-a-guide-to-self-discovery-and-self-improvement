@@ -1,5 +1,4 @@
-Chapter 6: Recognizing Common Challenges and Obstacles in Personal Growth
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common challenges and obstacles that individuals may encounter on their path of personal growth. By recognizing these hurdles, you can better navigate through them and proactively find strategies to overcome them.
 

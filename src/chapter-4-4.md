@@ -1,5 +1,4 @@
-Chapter 8: Celebrating Progress and Success Along the Way
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating progress and success along your personal growth journey. By acknowledging and appreciating your achievements, both big and small, you can stay motivated, boost self-confidence, and maintain a positive mindset throughout your pursuit of lifelong learning, self-discovery, and self-improvement.
 

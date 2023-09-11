@@ -1,5 +1,4 @@
-Chapter 9: Maintaining a Growth Mindset and Continuing to Learn for Personal Growth
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of maintaining a growth mindset and the benefits of lifelong learning for personal growth. Discover strategies and techniques to cultivate a mindset of continuous growth and embrace learning as a lifelong journey.
 

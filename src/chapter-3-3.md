@@ -1,5 +1,4 @@
-Chapter 9: Overcoming Fear and Self-Doubt in Pursuing New Interests
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques to overcome fear and self-doubt when pursuing new interests. By addressing these internal obstacles, you can unlock your potential for personal growth and embrace the joy of exploring new areas of interest.
 

@@ -1,5 +1,4 @@
-Chapter 10: Managing Setbacks and Failures
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for managing setbacks and failures along your journey of lifelong learning, self-discovery, and self-improvement. By developing resilience and embracing a growth mindset, you can navigate these challenges, learn from them, and continue on the path towards personal growth and success.
 

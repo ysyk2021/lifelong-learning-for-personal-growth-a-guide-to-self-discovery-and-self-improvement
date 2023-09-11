@@ -1,5 +1,4 @@
-Chapter 5: Building Mindfulness and Awareness through Daily Practices
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of building mindfulness and awareness as integral components of personal growth. Through daily practices, we can cultivate a deeper sense of presence, enhance self-awareness, and foster overall well-being.
 

@@ -1,5 +1,4 @@
-Chapter 7: Developing Action Plans to Achieve Your Goals
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will dive into the process of developing action plans to effectively achieve your goals. Setting goals is essential, but without a clear plan of action, they may remain mere aspirations. By following a structured approach and implementing actionable steps, you can turn your goals into reality and embark on a fulfilling journey of self-discovery and personal growth.
 

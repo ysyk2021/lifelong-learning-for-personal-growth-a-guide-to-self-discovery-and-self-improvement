@@ -1,5 +1,4 @@
-Chapter 6: Coping with Fear and Discomfort
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for coping with fear and discomfort as you embark on your journey of lifelong learning, self-discovery, and self-improvement. By understanding and managing these emotions, you can overcome obstacles, push your boundaries, and embrace personal growth with confidence.
 

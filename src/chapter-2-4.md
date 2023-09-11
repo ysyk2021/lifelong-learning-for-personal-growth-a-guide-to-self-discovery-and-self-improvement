@@ -1,5 +1,4 @@
-Chapter 4: Building Self-Awareness as a Learner
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of building self-awareness as a learner and explore strategies to enhance our understanding of ourselves in the context of lifelong learning. By developing self-awareness, we can optimize our learning experiences, identify areas for growth, and foster personal development.
 

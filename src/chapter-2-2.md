@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Developing a Growth Mindset
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques and strategies for developing and cultivating a growth mindset. These techniques will empower you to embrace challenges, persist through setbacks, and unlock your full potential for personal growth, self-discovery, and lifelong learning.
 

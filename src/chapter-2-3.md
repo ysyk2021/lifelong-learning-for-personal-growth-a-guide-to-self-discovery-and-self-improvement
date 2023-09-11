@@ -1,5 +1,4 @@
-Chapter 4: Overcoming Limiting Beliefs and Negative Self-Talk
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the process of overcoming limiting beliefs and negative self-talk that hinder personal growth and self-improvement. By recognizing and challenging these internal barriers, we can create a positive mindset and empower ourselves to reach new heights of self-discovery and personal development.
 

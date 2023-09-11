@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Identifying and Exploring Your Passions and Interests
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies to help you identify and explore your passions and interests. By understanding what truly excites and motivates you, you can embark on a fulfilling journey of personal growth and self-discovery.
 

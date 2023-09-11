@@ -1,5 +1,4 @@
-Chapter 5: The Role of Habits and Mindfulness in Personal Growth
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant role that habits and mindfulness play in personal growth. By understanding how habits shape our behaviors and incorporating mindfulness into our daily lives, we can create a foundation for self-discovery, self-improvement, and lifelong learning.
 

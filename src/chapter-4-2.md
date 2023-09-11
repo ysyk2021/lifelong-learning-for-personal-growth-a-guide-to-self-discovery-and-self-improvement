@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Setting SMART Goals
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for setting SMART goals to effectively guide our personal growth journey. By employing specific, measurable, achievable, relevant, and time-bound goals, we can enhance our focus, motivation, and progress towards self-discovery and self-improvement.
 
